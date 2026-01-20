@@ -1,1 +1,2 @@
-kdnbjvdmknskf ,nrkfinbbf.ffjvblkg/bnkfm kdb.
+the project is a simple weekly project
+
